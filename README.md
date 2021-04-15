@@ -5,6 +5,6 @@ Please feel free to create new issues if you experience bugs or have any other q
 
 Also, you can contact us directly via [support@apphousekitchen.com].
 
-Thanks you for helping us finding the last few tomato-chunks in our long-cooking pasta sauce,
+Thank you for helping us finding the last few tomato-chunks in our long-cooking pasta sauce,
 
 David & Matthias 👨🏻‍🍳
